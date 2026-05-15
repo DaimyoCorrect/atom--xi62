@@ -1,4 +1,4 @@
-# 
+# Enhance Atom for PC | Atom for Windows with rare Atom for PC | Atom for Windows Script | live-share + syntax-highlighting, the #1 script. Includes live-share and
 
 
 
